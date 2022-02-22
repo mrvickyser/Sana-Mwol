@@ -48,5 +48,5 @@
 CLICK THIS LOGO TO JOIN OUR SUPPORT GROUP🎗️
     <br>
 <br>
-  <a href="https://chat.whatsapp.com/Bq0eHs3UpGJ2BKIHOmy7mk" target="blank"><img align="center" src="https://i.imgur.com/UPo3niq.png" alt="kyrie.baran" height="50" width="300" /></a>
+  <a href="https://chat.whatsapp.com/Lp9GE7m6pU7Aa43SHmHMAt" target="blank"><img align="center" src="https://i.imgur.com/UPo3niq.png" alt="kyrie.baran" height="50" width="300" /></a>
 </p> 
